@@ -2,4 +2,4 @@ This resource pack plays a special "death" sound 💀 inspired by the anime Re:Z
 It adds an anime vibe ✨ and makes every revival 🔄 more exciting and unique.
 
 Easy to install ⚙️ and compatible with Minecraft 1.21.x versions 📦.
-Perfect for fans of both anime ❤️ and Minecraft 🎮!
+Perfect for fans of both anime ❤️ and Minecraft 🎮
